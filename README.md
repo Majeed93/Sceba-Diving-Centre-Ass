@@ -1,2 +1,2 @@
-# Sceba-Diving-Centre-Ass
+# Scuba-Diving-Centre-Ass
 This ass is for my institute 
